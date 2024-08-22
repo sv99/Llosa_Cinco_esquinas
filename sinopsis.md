@@ -1,0 +1,6 @@
+«Él había pensado que, después de todo, un periodista puede ser a veces útil. “Y también peligroso”, concluyó. Tuvo el presentimiento de que nada bueno saldría de esta visita».
+
+«La idea de esta novela comenzó con una imagen de dos señoras amigas que de pronto una noche, de una manera impensada para ambas, viven una situación erótica. Luego se fue convirtiendo en una historia policial, casi un _thriller_, y el _thriller_ se fue transformando en una especie de mural de la sociedad peruana en los últimos meses o semanas de la dictadura de Fujimori y Montesinos. Me gustó la idea de que la historia se llamase _Cinco esquinas_ como un barrio que, de alguna manera, es emblemático de Lima, de Perú y también de la época en la que está situada la historia.
+
+»Si hay un tema que permea, que impregna toda la historia, es el periodismo, el periodismo amarillo. La dictadura de Fujimori utilizó el periodismo amarillo, el periodismo de escándalo, como un arma política para desprestigiar y aniquilar moralmente a todos sus adversarios. Al mismo tiempo, también está la otra cara, cómo el periodismo, que puede ser algo vil y sucio, puede convertirse de pronto en un instrumento de liberación, de defensa moral y cívica de una sociedad. Esas dos caras del periodismo son uno de los temas centrales de _Cinco esquinas_» (Mario Vargas Llosa).
+

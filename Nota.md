@@ -1,0 +1,2 @@
+_Cinco esquinas_ es una obra de ficción en la que, para la creación de algunos personajes, el autor se ha inspirado en la personalidad de seres auténticos, con los que, además, comparten nombre, aunque a lo largo de toda la novela son tratados como seres de ficción. El autor ha asumido en todo momento libertad absoluta en el relato, sin que los hechos que se narran se correspondan con la realidad.
+
